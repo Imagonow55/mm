@@ -22,4 +22,8 @@ Discord Link:
 * Instagram: Master.Miners
 * Snapchat: Master.Miners
 * Gmail: masterminers.net@gmail.com
-* tiktok: masterminers
+* TikTok: masterminers
+
+## Why isn't there more here
+
+* This stuff takes some
